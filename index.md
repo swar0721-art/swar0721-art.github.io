@@ -6,6 +6,7 @@ title: "Swarna R"
 # Swarna R  
 📧 Email: [swar0721@gmail.com](mailto:swar0721@gmail.com)  
 📅 Date of Birth: 21 July 2004  
+Phn no: 7826929929
 
 ---
 
@@ -15,14 +16,14 @@ Motivated and detail-oriented student seeking opportunities to apply academic kn
 ---
 
 ## Education  
-*To be filled in – Degree, College/University, Year of Study, Marks (if desired).*  
+BBA LLB(hons) - 5 yrs integrated course in Sastra Deemed University
 
 ---
 
 ## Internship Experience  
 
 **Bharthis Legal — Intern**  
-*Duration: [Insert months/years]*  
+*Duration: 20 June to 20 July 2025 
 - Assisted in drafting, reviewing, and organizing legal documents.  
 - Conducted preliminary research on case laws and legal precedents.  
 - Supported senior advocates in preparing case briefs and client documentation.  
@@ -40,11 +41,11 @@ Motivated and detail-oriented student seeking opportunities to apply academic kn
 ---
 
 ## Achievements / Certifications  
-*To be added – certifications, online courses, or notable achievements.*  
+*Participated in several inter college events such as client counselling
 
 ---
 
 ## Personal Details  
 - Date of Birth: 21 July 2004  
 - Languages: *[e.g., English, Tamil, Hindi]*  
-- Location: *[City, State]*  
+- Location: *[Chennai,Tamil Nadu]*  
