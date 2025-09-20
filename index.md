@@ -6,7 +6,7 @@ title: "Swarna R"
 # Swarna R  
 📧 Email: [swar0721@gmail.com](mailto:swar0721@gmail.com)  
 📅 Date of Birth: 21 July 2004  
-Phn no: 7826929929
+📞 Phn no: 7826929929
 
 ---
 
