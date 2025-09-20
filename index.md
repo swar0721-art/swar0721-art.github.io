@@ -41,7 +41,7 @@ BBA LLB(hons) - 5 yrs integrated course in Sastra Deemed University
 ---
 
 ## Achievements / Certifications  
-*Participated in several inter college events such as client counselling
+*Participated in several intra college events such as client counselling
 
 ---
 
